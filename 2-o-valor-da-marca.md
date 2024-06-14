@@ -117,6 +117,77 @@ intel reforça que a marca tem um maior desempenho, essa campanha convence que o
 
 <img width="359" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/f7d7cc43-69d3-4b37-9928-7d87de76dc76">
 
-<img width="344" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/510d6995-129f-423a-b672-258341491851">
+**Brand Equity**
 
-<img width="305" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/d7835638-af1c-4dbe-a172-3e990e6e0175">
+Brand Equity é um conceito importante quando falamos em gerenciamento de marca e ele pode ser traduzido de uma forma simples, como o valor da marca.
+
+Esse conceito de marketing surgiu na década de 1980. Basicamente, todo o trabalho do branding é fornecer aos produtos e serviços brand equity, ou seja, fornecer valor à marca.
+
+Equity significa patrimonio.
+
+Quando trás familiaridade com a marca, e precisa convencer os consumidores que se as marcas mesmo estando na mesma categoria, possuem diferenciais, Mas quando falamos de marcas, é algo intangível, diferente do valor do patrimônio físico de uma empresa.
+Por isso que a sua avaliação é muito mais complexa do que você avaliar o patrimônio físico. Não se trata apenas de ter uma identidade fácil de reconhecer, porque a gente sabe que são muitos exemplos de marcas reconhecidas de uma forma negativa, percebidas de uma forma negativa.
+Então, aqui nós estamos falando de associações positivas.
+Quanto mais forte e positiva a imagem da empresa, a imagem da marca, maior será o seu valor no mercado. Maior será o valor de mercado da marca.
+
+<img width="370" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/1dc17a92-0acb-4c83-ae5b-0e3a336ba337">
+
+**Benefícios do Brand Equity**
+
+As empresas podem cobrar mais por um produto com um grande valor de marca. Esse valor de marca pode ser transferido para extensões de linha, então produtos relacionados à marca que inclui o nome da marca para que a empresa possa ganhar mais dinheiro trabalhando.
+
+Então, dessa forma, com a marca guarda chuva e de uma maneira geral, aumenta também o valor das ações da empresa.
+
+<img width="336" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/55c30b8b-3722-4b7e-a8d3-e45421fa7b47">
+
+<img width="363" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/075ef6e3-3345-48ca-a7d6-5ad9739d181c">
+
+Como que os profissionais de marketing criam branding equity?
+
+branding equity ocorre quando os consumidores têm um alto grau de lembrança da marca, ou seja, familiaridade com ela. Trazem à memória algumas associações fortes, favoráveis e exclusivas para que as estratégias de branding sejam bem sucedidas e para que seja então de fato criado o branding equity. Os consumidores precisam ser convencidos de que há diferenças significativas entre as marcas dentro da mesma categoria de produtos e serviços.
+
+A chave do Brand, então, é que os consumidores não somente pensem que todas as marcas estão naquela categoria, mas que eles saibam que as marcas, mesmo estando dentro de uma mesma categoria, elas não são iguais.
+O Branding Equity se desenvolve e cresce como resultado das experiências de um cliente com uma determinada marca. Geralmente, o processo se desenvolve segundo um modelo previsível e que compreende as seguintes etapas.
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/c72c4d24-298d-44a1-939c-2aad465d67d4)
+
+Consciencia: perceber que aquela marca existe. Ex: arroz Camil, café pilão..
+Reconhecimento: é  quando o consumidor tem algo a falar do arros, do café, do produto, marca, criou associações
+Experiência:é quando todas as associações foram positivas a ponto que ele quer comprar / consumir
+Preferencia: é quando ele procura exatamente aquela marca, é a marca que ele compra, mas não necessariamente tem lealdadade, se aquela marca nao tiver ele obtém outra 
+Lealdade: é quando o consumidor busca a marca, não a encontra e nao substitui por outro item similar, e também quando a marca possui outros produtos e você só compra exatamente dela.
+
+Então, o processo de criação de marcas poderosas e significativas únicas envolve uma tomada de decisão que vai passar por três áreas, chaves essas que você está vendo aí na tela, como você está vendo na imagem.
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/ae3e04c0-0204-4964-b53f-9ff363e6a1a5)
+
+A primeira é a definição do seu posicionamento de marca. Construir uma posição marcante requer foco, entendimento de quem vai ser o seu cliente ideal, escolher o valor da marca, escolher o valor que você quer entregar para esses clientes.
+
+E aí, então será possível você situar essa marca numa hierarquia de marcas. Definição de posicionamento, requer foco, valor da marca e só só assim ela entra numa hierarquia de marca e assim a entrega de valor
+
+**O que é Branding Digital?**
+
+A melhor maneira de pensar sobre branding é entender a marca como a personalidade de alguma coisa. Se alguém diz a você em poucas palavras sobre a sua personalidade, ou seja, a pessoa falando para você sobre ela mesma, você pode acabar com uma ideia bastante superficial sobre essa pessoa, ou até
+mesmo você pode desconfiar de que tudo o que essa pessoa diz pode não ser verdade. E é exatamente isso que acontece quando a gente pensa nas marcas.
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/82fc5bd9-853e-4689-ab50-bb57e17c9cb6)
+
+Se elas antigamente tinham a possibilidade de se apresentar apenas elas falando sobre sua personalidade. Hoje em dia, com as redes sociais, as marcas não podem mais agir dessa maneira, porque elas estão
+o tempo inteiro sendo questionada nas redes sociais.
+Uma marca se mostrava na TV e em outros canais, mas nós não podíamos discutir com as marcas para interagir e então pedir que elas provassem se elas eram realmente tudo aquilo que elas diziam. E então a gente, através dessa nossa interação com elas, experimentar.
+Qual é de fato a personalidade e o posicionamento da marca hoje em dia, com as novas mídias, toda essa conversa teve um caminho aberto.
+
+Então, a gente pode desafiar as marcas e questionar, colocar tudo o que essas marcas estão falando e cheque, questionar a personalidade que elas esculpiram para elas. E isso pode ser uma coisa assustadora para muitos. Muitas marcas, muitos administradores, gerentes que têm um posicionamento mais tradicional podem ter medo do que pode acontecer. Se você colocar a sua marca ali e abrindo espaço para as pessoas questionarem e interagirem, escreverem o que elas pensam.
+
+A marca que você está administrando. Ela não é o que você diz sobre ela. Na verdade, a marca é a soma do que o mundo diz sobre ela, e isso tem enormes implicações não apenas sobre a maneira como nós fazemos para gerenciar as marcas, mas também sobre como precisamos mudar a própria natureza das organizações.
+
+Ficar longe dessas redes é esquecer da necessidade real, atualmente, de autenticidade e transparência. É um tiro no pé que qualquer marco ou qualquer organização pode dar. Um outro erro comum é entender o papel da marca nessa conversa, de maneira que ela está lá nessas redes só para ficar postando conteúdo, informando e não interagir com as pessoas nesses canais.
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/d450ac11-cbb5-48f7-80d0-48020762fd6b)
+
+O Branding é a soma de todas as experiências que uma pessoa tem com uma marca  especifica, e tem vários pontos de contato(touch point) que essa pessoa tem com a marca, além dos pontos de contato físico temos as redes socias, whatssap, embalagem, troca de e-mail, SAc . Depoimento de um cliente que o cliente deixa no SAC.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/af18a97a-c54e-4787-900f-0e9aba7704b6)
+
+
