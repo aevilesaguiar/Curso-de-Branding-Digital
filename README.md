@@ -112,14 +112,46 @@ Quando trás familiaridade com a marca, e precisa convencer os consumidores que 
 ![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/c72c4d24-298d-44a1-939c-2aad465d67d4)
 
 Consciencia: perceber que aquela marca existe. Ex: arroz Camil, café pilão..
-Reconhecimento: é  
-Experiência:
-Preferencia:
-Lealdade:
+Reconhecimento: é  quando o consumidor tem algo a falar do arros, do café, do produto, marca, criou associações
+Experiência:é quando todas as associações foram positivas a ponto que ele quer comprar / consumir
+Preferencia: é quando ele procura exatamente aquela marca, é a marca que ele compra, mas não necessariamente tem lealdadade, se aquela marca nao tiver ele obtém outra 
+Lealdade: é quando o consumidor busca a marca, não a encontra e nao substitui por outro item similar, e também quando a marca possui outros produtos e você só compra exatamente dela.
+
+O processo de criação de marca passa por 3 processos de decisão
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/ae3e04c0-0204-4964-b53f-9ff363e6a1a5)
+
+Definição de posicionamento, requer foco, valor da marca e só só assim ela entra numa hierarquia de marca e assim a entrega de valor
+
+O que é Branding Digital?
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/82fc5bd9-853e-4689-ab50-bb57e17c9cb6)
+
+Hoje em dia com as novas mídias, podemos questionar as pernalidades das marcas. As pessoas podem questionar, interagir. As marcas tem
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/d450ac11-cbb5-48f7-80d0-48020762fd6b)
+
+O Branding é a soma de todas as experiências que uma pessoa tem com uma marca  especifica, e tem vários pontos de contato(touch point) que essa pessoa tem com a marca, além dos pontos de contato físico temos as redes socias, whatssap, embalagem, troca de e-mail, SAc . Depoimento de um cliente que o cliente deixa no SAC.Isso tem a ver com a jornada de contato do compradr.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/af18a97a-c54e-4787-900f-0e9aba7704b6)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/e12b06ef-0d49-4f07-bd07-1d7088394bb7)
 
 
 
 
+
+**Essencia da marca**
+
+
+
+
+<img width="794" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/bed4a861-0a91-4bd8-8b0a-c8df04c91855">
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/a1189d80-ef1e-4a93-82f1-ab0a52fdd5bb)
 
 
 
