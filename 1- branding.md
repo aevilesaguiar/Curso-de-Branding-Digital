@@ -1,5 +1,16 @@
-# Curso-de-Branding-Digital
+# Branding
+
 Curso de Branding Digital: Estratégias de Marcas e Negócios
+
+O que a palavra marca significa para você.
+
+Como você descreveria?
+
+O que é uma marca?
+
+O que faz uma marca?
+
+Pense em três palavras que você considere sinônimo de marca.
 
 
 <img width="457" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/01b1eee0-1355-49c1-b607-1e1906c1fe6b">
@@ -20,10 +31,28 @@ https://www.youtube.com/watch?v=r57JwdCOou0
 
 <img width="394" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/c5669818-5193-4607-b9d1-7c3756297bc5">
 
+É claro que quando a gente fala de branding, é um assunto muito complexo e vai muito além do que o significado da palavra marca.
+
+**A Origem do Branding**
 
 <img width="225" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/a0df6322-0f60-477c-b0fc-b10dafcba896">
 
 Quando pensamos em marca, pensamos em personalidade.
+
+O branding existiu muito antes desse termo se tornar algo formal dentro do estudo do marketing. A palavra marca é originária da palavra nórdica brana, que significa queimar e era associada ao uso de um selo de ferro quente em animais ou objetos, justamente para marcar esses animais e objetos e distinguir, então, quem eram seus proprietários.
+Ao longo da história, o uso de marcas e símbolos foi observado e documentado em várias civilizações e culturas antigas, isso no mundo todo.
+
+O branding então existe de uma forma ou de outra há séculos, e a motivação original do ato de marcar era a possibilidade de artesãos e outros profissionais identificarem o fruto dos seus trabalhos, de modo que os clientes pudessem reconhecê-los.
+
+Foram encontradas marcas em porcelana chinesa, jarros de cerâmica da Grécia e Roma Antiga. Até mesmo mercadorias provenientes da Índia, datadas de 1300 anos antes de Cristo. Quando os europeus começaram a se estabelecer na América do Norte, então eles levaram essa prática de marcar os produtos.
+
+Por volta do ano de 1850, muitos produtores de tabaco reconheceram que nomes mais criativos eram úteis para vender seus produtos. E assim, além dos nomes, eles desenvolveram embalagens e rótulos mais atraentes para com isso, aumentar as vendas.
+
+Você pode, então, perceber que o trabalho feito com marcas é algo muito antigo. Apenas foi evoluindo com os anos. Com novas descobertas, novas práticas, a história das marcas está intimamente ligada à evolução dos
+
+mercados e com a evolução do consumo.
+
+Hoje, a marca seduz e conquista. Ela vai muito além de informar apenas as características e os benefícios dos produtos.
 
 <img width="341" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/312c7fad-5af6-45c2-ba1f-6f0c9058ff1c">
 
