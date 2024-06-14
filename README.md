@@ -153,5 +153,260 @@ O Branding é a soma de todas as experiências que uma pessoa tem com uma marca 
 
 ![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/a1189d80-ef1e-4a93-82f1-ab0a52fdd5bb)
 
+Tudo começa na essencia, depois os valores e por fim a identidade.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/57632ba5-a3e6-4f66-b0b7-1dd6b529f1f8)
+
+A essencia da marca é emotiva e humana, intangível ou seja, é sentido pelo o público, precisa ser autêntica.
+
+Ela é geralmente descrita em 3 ou 5 palavras, expressa o maior benefício que o cliente terá ao consumir a marca, a essencia da marca é a promessa fundamental.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/8403688b-c25d-40e2-8b8b-709c40eb5728)
+
+Os 3 tipos de benefícios são:
+Emocionais: é como a pessoa se sente ao consumir aquele produto ou serviço
+Sociais:é como ela se sente com as pessoas que ela tem algum tipo de relacionamento.
+Funcionais:benefícios daquele produto e serviço
+
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/7bb0e433-3176-42b7-85ba-296e639dd01c)
+
+Promossa de marca é o Benefício de marca, como ela se diferencia dos seus concorrentes, algo importante para o consumidor.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/2ee8d8b5-501f-4be6-860f-5be873033c86)
+
+O objetivo é a marca não fazer promessas vazias, mas se diferenciar
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/4d9f6fc9-aa42-4eae-8841-886cb9838e89)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/8d822ea9-7043-40cd-8989-994794afb7b9)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/47466ed5-15e8-44ee-a7b3-8809a557f67b)
+
+Escalável, se a marca tiver futuras extensões de produto, a essencia precisa ser aplicada as novas extensões.
+
+Sustentável, significa que com o tempo a essencia da marca não muda, você pode mudar o logo, slogan mas a essencia permance
+
+Autentica: os consumidores precisam sentir que o produto oferece o que ela diz ;
+
+Relevante:significa que para o consumidor a essencia da marca é relevante, vital e desejável;O que você diz sobre a sua marca não importa, e sim o quanto ela é relevante para os seus consumidores;
+
+Focada na experiência: a maneira como o consumidor se sente ao consumir um produto é capturada pela essencia da marca, a marca não é um jargão interno, e sim como o consumidor se sente;
+
+única: a essencia deve ser unica, os consumidores deve notar que tem algo que precisa ser notado e não copiado, essa essencia é o que vai diferenciar a sua marca dos concorrentes;
+
+Exemplos:
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/bff547ff-d44a-4ed2-ac48-051f7e539ba2)
+
+A apple não vende celular, computador e tablet, ela vende macbok, ipad e iphones.Muitas vezes se comparado com um produto de um concorrente os seus são inferiores, os produtos na apple são de valores maiores comparado com os produtos similares.
+
+
+<img width="328" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/7dfcc0c2-2dd5-4094-a105-e01a4964350f">
+
+
+<img width="397" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/a466ccea-2d8a-4973-ac45-6d9462806085">
+
+Todos os seguimentos diferentes , mas com essencias de marca;
+
+<img width="418" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/857f027b-1e4f-43c2-917f-5b16904bd4e2">
+
+Essencia é o Porque, lembrando do circulo dourado (Simon Sineq)
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/a5c6578b-dadc-4e27-ae64-6748c2502113)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/5ce6f158-9ee0-4520-8067-92371974a135)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/72f777bd-fc89-4433-b2fc-5b7b81e52339)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/c22bff62-d7f6-463a-9b6e-d9f90f511b81)
+
+A essencia precisa ser sustentável, o slogan pode durar um ano, uma campanha...
+
+A essencia de marca é um compromisso, uma promessa de longo prazo, o futuro que você quer ver.A essencia é o farol.
+Slogan é a maneira de traduzir na linguagem do consumidor.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/f48e1d3f-71cc-4dca-bd30-4bd3922c5081)
+
+
+**Exemplos de Benefícios**
+
+Benefícios Funcionais
+Um benefício funcional é atraente. Costumamos supor que os clientes são racionais e serão influenciados por benefícios funcionais. Um benefício funcional é exatamente o que o cliente terá com o produto ou serviço.
+
+Alguns exemplos são:
+
+- Funciona melhor
+- É fácil de usar
+- Economiza tempo ou dinheiro
+
+Quando você procura pelos benefícios que sua marca entrega, deve analisar os benefícios funcionais e emocionais que você acredita que combinam com o que os consumidores querem e o que sua marca faz melhor do que os outros concorrentes.
+
+Duas dicas para evitar a armadilha dos benefícios funcionais:
+
+Crie uma personalidade de marca forte. A maioria das marcas com personalidade forte oferece mais do que benefícios funcionais.
+
+Forneça vários benefícios. Oferecer benefícios funcionais e emocionais é mais eficaz do que apenas um dos dois.
+
+**Benefícios Emocionais**
+
+Um benefício emocional está relacionado à capacidade da marca de fazer com que o comprador ou usuário de uma marca sinta algo durante o processo de compra ou use a experiência.
+
+"Quando eu compro ou uso essa marca, me sinto ______________."
+
+Assim, um cliente pode se sentir seguro em um Volvo, vibrante em um BMW ou refrescante com Coca-Cola.
+
+Os benefícios emocionais adicionam riqueza e profundidade à marca e a experiência de possuir e usar a marca.
+
+
+**Benefícios de Sociais**
+
+Marcas e produtos, podem ser símbolos para o autoconceito de uma pessoa, podem proporcionar um benefício social (autoimagem) ao fornecer um veículo pelo qual uma pessoa pode se expressar.
+
+"Quando eu compro ou uso essa marca, eu sou ______________."
+
+Uma marca não precisa ser uma Harley-Davidson para fornecer benefícios de autoimagem.
+
+Uma pessoa pode ser legal comprando roupas na Zara, uma pessoa de sucesso dirigindo um Toyota Corolla ou criativa usando produtos da Apple.
+
+Quando uma marca fornece um benefício social, a conexão entre a marca e o cliente provavelmente será aumentada.
+
+Por exemplo, considere a diferença entre a marca e a conexão da Lancôme ou Lush, que pode ser o autoconceito de ser sofisticado, exótico e misterioso versus usar Davene ou Monange.
+
+
+**Valores da Marca**
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/d22e572a-c0c7-4fcb-b2cf-a2c8b82ac944)
+
+Valores é onde a sua organização vai focar a sua energia.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/04f06ecb-99aa-4812-a6cf-4b3a3ee26f40)
+*Pioneirismo, criar algo que não existe
+
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/d241ff14-4066-4545-967b-9a5641ccb971)
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/bc13da64-6915-41af-9e97-22ea2543c543)
+
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/1b4e3c52-63b3-48e3-ae26-a5cd979a8eee)
+
+Os valores que você escolhe para representar sua empresa e as verdades que a sua marca representa vão
+afetar as suas comunicações, o marketing, decisões e, o mais importante, os relacionamentos e as
+conexões que você vai fazer com seu público, com seus fornecedores, com seus clientes e os clientes
+em potencial.
+Os seus valores, na verdade, eles são princípios orientadores que articulam o que você representa.
+É a principal força motriz por trás da sua marca, seus negócios, dos seus comportamentos, das suas
+decisões.
+
+São os valores que definem o que é mais importante para a marca, fornecendo orientação e influenciando nas escolhas.
+Eles também influenciam decisões de compra as decisões do consumidor.
+Eles afetam as vendas e o lucro, porque as pessoas muito provavelmente vão comprar de marcas cujos
+valores estejam alinhados com seus próprios valores.
+
+Algumas empresas simplesmente definem esses valores e só para concluir uma etapa no plano de marketing.
+Mas eles são apenas itens vazios numa lista e isso nunca vai levar a marca para o sucesso.
+As marcas de sucesso, elas selecionam esses valores cuidadosamente e têm também o cuidado de infundir
+esses valores em todos os aspectos da empresa nas equipes.
+
+
+<img width="335" alt="image" src="https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/6a25d65d-abbe-4d36-a787-c8d4356f65a4">
+
+
+Na mensagem que a empresa passa na equipe de vendas, equipe de marketing, na maneira como ela ofereceos serviços, na maneira como ela elabora suas ofertas.
+As empresas usam seus valores centrais como padrões de comportamento que mantêm a empresa sempre avançando
+na direção certa.O processo de definição dos valores da sua marca, como eu já disse, não é uma tarefa única e nem tão pouco fácil. É um exercício que precisa ser revisitado ao longo do tempo para garantir que esses valores permaneçam
+alinhados com a verdadeira essência de que a marca é e do que a empresa representa.Seus valores devem ser verdadeiros para quem a marca e eles devem ser, de fato, importantes para a marca.
+
+Eles não podem ser baseados no que outras pessoas pensam ou no que outras pessoas acham que deveria ser.
+
+Você precisa começar, então, essa definição dos valores. Com uma lista longa, escreva aí vários dos valores, vários dos valores que a sua empresa já possuie vários valores que vão nortear para que você atinja o próximo e o próximo nível da sua marca, por exemplo.
+
+E aí, depois que você tiver uma lista longa de valores, vá reduzindo e reduzindo e reduzindo o processo de selecionar e restringir seus principais valores.
+Pode ser desafiador porque vai obrigar você a ser muito honesto com o que realmente é importante para você.
+
+O ideal é que você termine com uma lista com cinco valores, ou seja, uma quantidade de valores que seja possível você contar em uma mão, porque esses valores eles devem ser muito fáceis para você se lembrar quais são eles e também para toda a sua equipe.
+
+Deve ser muito fácil de qualquer um. Muito facilmente, muito tranquilamente, enumerar ali quais são os valores para te ajudar.
+
+Eu vou deixar um PDF aqui nos recursos dessa aula, com uma lista de vários valores, muitos valores.
+
+E aí lá você vai poder selecionar dentro dessa lista, quais são os valores que mais se adequam a sua essência, a essência que você já desenvolveu.
+
+Então, não se esqueça disso. É importante começar pela essência e somente depois que você já tiver a sua essência definida, aí que você vai começar a pensar nos valores.
+
+**Identidade da marca**
+
+Vamos começar nessa aula falando sobre a identidade de marca.
+
+De maneira resumida, a identidade de marca é a combinação de elementos visuais, sonoros, olfativos,
+
+táteis e gustativos, ou seja, elementos que dizem respeito aos nossos vários sentidos, criando reconhecimento
+
+de marca e, por exemplo, o nome da marca, o logo, símbolos, cores, formas, slogans, personagens,
+
+aromas, tudo que está unicamente associado a uma marca.
+
+Já quando falamos sobre a imagem de marca, estamos falando da soma das percepções resultantes da experiência
+
+dos consumidores.
+
+Quer dizer, como que eles percebem a marca?
+
+Como nós vimos nas aulas anteriores.
+
+A essência da marca é o coração e alma da marca.
+
+Os valores são as competências e habilidades da marca.
+
+E a identidade que nós vamos ver nessa aula está diretamente relacionada à personalidade da marca.
+
+Então, como você pode ver aí na tela?
+
+O primeiro trabalho é a essência.
+
+A primeira coisa que nós temos que focar é em estabelecer a essência da marca.
+
+Depois nós definimos os valores e só então começamos a trabalhar na identidade da marca e é da identidade
+
+que vamos obter a personalidade.
+
+Somente aí que podemos iniciar o trabalho de criação de logo, definição da paleta de cores, enfim,
+
+tudo o que está relacionado à identidade.
+
+Somente depois de todo esse trabalho que a gente pode definir.
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/6d451036-f42d-46fd-8acd-766671b4c3a6)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/576f3d6e-6e07-40a6-bcaf-441e9d4fcc44)
+Identidade é o último ponto.
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/1b81fc80-7738-49d5-8aee-3d2ac3671615)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/f27a3c3a-c4d2-404d-8f37-2abbc4d92171)
+
+
+Exemplo Coca Cola
+
+
 
 
