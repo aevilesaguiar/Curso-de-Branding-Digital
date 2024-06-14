@@ -352,45 +352,20 @@ Então, não se esqueça disso. É importante começar pela essência e somente 
 
 **Identidade da marca**
 
-Vamos começar nessa aula falando sobre a identidade de marca.
+Vamos começar nessa aula falando sobre a identidade de marca. De maneira resumida, a identidade de marca é a combinação de elementos visuais, sonoros, olfativos, táteis e gustativos, ou seja, elementos que dizem respeito aos nossos vários sentidos, criando reconhecimento
+de marca e, por exemplo, o nome da marca, o logo, símbolos, cores, formas, slogans, personagens, aromas, tudo que está unicamente associado a uma marca.
 
-De maneira resumida, a identidade de marca é a combinação de elementos visuais, sonoros, olfativos,
-
-táteis e gustativos, ou seja, elementos que dizem respeito aos nossos vários sentidos, criando reconhecimento
-
-de marca e, por exemplo, o nome da marca, o logo, símbolos, cores, formas, slogans, personagens,
-
-aromas, tudo que está unicamente associado a uma marca.
-
-Já quando falamos sobre a imagem de marca, estamos falando da soma das percepções resultantes da experiência
-
-dos consumidores.
+Já quando falamos sobre a imagem de marca, estamos falando da soma das percepções resultantes da experiênciados consumidores.
 
 Quer dizer, como que eles percebem a marca?
 
-Como nós vimos nas aulas anteriores.
+Como nós vimos nas aulas anteriores. A essência da marca é o coração e alma da marca. Os valores são as competências e habilidades da marca. E a identidade que nós vamos ver nessa aula está diretamente relacionada à personalidade da marca.
 
-A essência da marca é o coração e alma da marca.
+Então, como você pode ver aí na tela? O primeiro trabalho é a essência. A primeira coisa que nós temos que focar é em estabelecer a essência da marca.
 
-Os valores são as competências e habilidades da marca.
+Depois nós definimos os valores e só então começamos a trabalhar na identidade da marca e é da identidade que vamos obter a personalidade. Somente aí que podemos iniciar o trabalho de criação de logo, definição da paleta de cores, enfim, tudo o que está relacionado à identidade.
 
-E a identidade que nós vamos ver nessa aula está diretamente relacionada à personalidade da marca.
-
-Então, como você pode ver aí na tela?
-
-O primeiro trabalho é a essência.
-
-A primeira coisa que nós temos que focar é em estabelecer a essência da marca.
-
-Depois nós definimos os valores e só então começamos a trabalhar na identidade da marca e é da identidade
-
-que vamos obter a personalidade.
-
-Somente aí que podemos iniciar o trabalho de criação de logo, definição da paleta de cores, enfim,
-
-tudo o que está relacionado à identidade.
-
-Somente depois de todo esse trabalho que a gente pode definir.
+Somente depois de todo esse trabalho que a gente pode definir à identidade da marca.
 
 ![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/6d451036-f42d-46fd-8acd-766671b4c3a6)
 
@@ -404,9 +379,29 @@ Identidade é o último ponto.
 
 ![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/f27a3c3a-c4d2-404d-8f37-2abbc4d92171)
 
+Então, como nós já vimos na introdução, a identidade da marca vem da própria empresa.É a empresa que vai trabalhar.Ou seja, a empresa é responsável por criar um produto diferenciado, com características únicas e como a própria marca quer se identificar como a marca quer ser percebida no mercado.
 
-Exemplo Coca Cola
+A marca comunica a sua identidade aos consumidores por meio das suas estratégias de branding e de marketing. Uma marca, então, é única justamente devido a sua identidade e a identidade da marca. Ela é então composta por vários elementos e os elementos são aspecto físico, personalidade, cultura, relacionamento, reflexo e auto imagem. Vamos entender cada um desses elementos em detalhe. Tendo como exemplo a Coca Cola. Então, o primeiro elemento é o aspecto físico.
 
 
+Aspecto físico, então, é como que a marca vai ser reconhecida fisicamente.
+Inclui logo esquema de cores, embalagens, espaços, comunidades on line. No caso da Coca Cola, temos o logo. Essa fonte cursiva que você está vendo é a famosa garrafa de vidro, esse formato da garrafa de vidro, que é o carro chefe da marca.
 
+Outro elemento da identidade de marca é a personalidade e a personalidade, e a característica da marca é a forma como a marca se comunica com o mundo exterior e ela pode ser expressa por um determinado estilo de escrita, um determinado tom de voz, um estilo de design. Esquema de cores. Ou até mesmo pela adesão de pessoas famosas, quando a marca utiliza então de pessoas famosas para fazer a propaganda e colar a personalidade dessas pessoas famosas com a personalidade da marca.
+
+No caso da Coca Cola, a gente pode dizer que a personalidade da Coca-Cola é feliz, alegre e refrescante. É que a Coca Cola preza pelos bons momentos e pelo ato de compartilhar. Então, quando a Coca Cola for escolher então uma personalidade para fazer um anúncio para fazer um comercial, ela vai escolher uma personalidade com essas características.
+
+Agora, o próximo elemento da identidade de marca é a cultura e a cultura é o sistema de valores e princípios em que a marca baseia todo o seu comportamento. Existe então uma conexão íntima entre a cultura da marca e a cultura da organização. A cultura da organização que está criando e gerenciando essa marca. No caso da Coca-Cola, a cultura baseia se na socialização e no compartilhamento. 
+
+Outro elemento é o relacionamento.Quando a gente está falando aqui de relacionamento, é no sentido da relação entre a marca e as outras pessoas. Como que tipo de relacionamento a marca imprime, então, entre ela e os seus consumidores?
+Uma marca ela pode ter uma relação de mãe e filho. Então a marca pode ser a mãe e os seus consumidores, os filhos ou podem ser amigos ou a marca pode se posicionar como um professor e os consumidores e seus alunos. No caso da Coca Cola, é uma relação amigável e igualitária. Então, essas pessoas, que são os consumidores e a própria marca Coca-Cola, elas têm um relacionamentode amigos. O reflexo está ligado ao reflexo do consumidor. Em outras palavras, é o maior estereótipo do comprador da marca.
+
+Embora uma empresa possa ter várias baixas personas nesse caso, aqui a gente está falando do principal tipo de comprador, a principal a persona da marca. Mas, resumidamente, as personas são uma evolução do público alvo. Quando a gente falar de público alvo, a gente ficava preso a apenas algumas questões demográficas e pouquíssimas questões psicológicas e comportamentais.
+
+A  Persona dá uma visão muito mais profunda desse público e aqui, nesse caso, o reflexo, esse elemento da identidade da marca. Ele vai, então, capturar quem é essa baixa persona principal e no caso da Coca Cola? São jovens que valorizam diversão, amizade e esporte. Veja que, apesar da Coca-Cola ter então um público muito amplo, ela tem ali vários perfis de clientes. Mas esses são os que mais consomem a Coca-Cola. Então esse é o reflexo, no caso aqui, do elemento que a gente está estudando identidade da marca.
+
+Outro elemento é a auto imagem e a auto imagem é o ideal de imagem do próprio consumidor. Então, se no reflexo a gente falou de alguém que é o perfil mais comum de consumidor da marca, quando a gente fala de auto imagem, a gente está falando sobre como que as pessoas, de uma forma geral,
+se sentem e se imaginam, se veem ao consumir esse produto. Auto imagem é um espelho que a própria pessoa vai segurar para si. A própria pessoa vai grudar nela essa essa imagem ao consumir aquele produto. Por isso que profissionais de marketing publicitários se baseiam na auto imagem do público para direcionar, então, as estratégias de marketing e a comunicação, a maneira como vai ser feita a comunicação para ficar um pouco mais claro.
+
+No caso da Coca Cola, essa auto imagem é de alguém sociável e comunicativo. Então, a pessoa que consome a coca cola, ela quando consome, ela tem a sensação de que consumir esse produto a torna uma pessoa sociável e comunicativa.
 
