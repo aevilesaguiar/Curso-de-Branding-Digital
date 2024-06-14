@@ -401,7 +401,22 @@ Embora uma empresa possa ter várias baixas personas nesse caso, aqui a gente es
 A  Persona dá uma visão muito mais profunda desse público e aqui, nesse caso, o reflexo, esse elemento da identidade da marca. Ele vai, então, capturar quem é essa baixa persona principal e no caso da Coca Cola? São jovens que valorizam diversão, amizade e esporte. Veja que, apesar da Coca-Cola ter então um público muito amplo, ela tem ali vários perfis de clientes. Mas esses são os que mais consomem a Coca-Cola. Então esse é o reflexo, no caso aqui, do elemento que a gente está estudando identidade da marca.
 
 Outro elemento é a auto imagem e a auto imagem é o ideal de imagem do próprio consumidor. Então, se no reflexo a gente falou de alguém que é o perfil mais comum de consumidor da marca, quando a gente fala de auto imagem, a gente está falando sobre como que as pessoas, de uma forma geral,
-se sentem e se imaginam, se veem ao consumir esse produto. Auto imagem é um espelho que a própria pessoa vai segurar para si. A própria pessoa vai grudar nela essa essa imagem ao consumir aquele produto. Por isso que profissionais de marketing publicitários se baseiam na auto imagem do público para direcionar, então, as estratégias de marketing e a comunicação, a maneira como vai ser feita a comunicação para ficar um pouco mais claro.
+se sentem e se imaginam, se veem ao consumir esse produto. Auto imagem é um espelho que a própria pessoa vai segurar para si. A própria pessoa vai grudar nela essa essa imagem ao consumir aquele produto. Por isso que profissionais de marketing publicitários se baseiam na auto imagem do público para direcionar, então, as estratégias de marketing e a comunicação, a maneira como vai ser feita a comunicação para ficar um pouco mais claro. No caso da Coca Cola, essa auto imagem é de alguém sociável e comunicativo. Então, a pessoa que consome a coca cola, ela quando consome, ela tem a sensação de que consumir esse produto a torna uma pessoa sociável e comunicativa.
 
-No caso da Coca Cola, essa auto imagem é de alguém sociável e comunicativo. Então, a pessoa que consome a coca cola, ela quando consome, ela tem a sensação de que consumir esse produto a torna uma pessoa sociável e comunicativa.
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/f8aa7731-3d48-423d-ba43-dac923c9bc18)
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/6fb8b1e0-10cb-4f4b-98a8-3db33cf9ef64)
+
+Então, a identidade de marca é um conjunto de associações mentais e funcionais com a marca. Essas associações fornecem então familiaridade e diferenciação que não podem ser copiadas por outras marcas.
+
+A marca pode ser percebida como um produto, uma personalidade, um conjunto de valores e, principalmente, uma posição que ela ocupa na mente do consumidor.
+
+A identidade de marca é tudo o que uma organização quer que a marca seja considerada. Então, lembrando, a marca pode ser vinculada a uma empresa, um produto, serviço ou até mesmo uma pessoa. E é uma maneira de expressar externamente uma marca para o mundo. Resumindo, é o meio de identificar e distinguir uma organização da outra. Uma marca com uma identidade única, melhora não somente o reconhecimento de marca, mas também motiva a equipe de funcionários que se sentem orgulhosos em trabalhar numa organização em que a marca é reconhecida, que tem compradores ativos e um estilo próprio.
+
+Então, até na questão de melhorar os seus colaboradores, melhorar no sentido de qualificação dos seus colaboradores, ter uma marca forte também ajuda nesse sentido. A identidade da marca leva então a lealdade, preferência, credibilidade, bons preços e bons retornos financeiros.
+
+Ajuda a organização a expressar aos clientes e ao mercado alvo o tipo de organização que ela é. A identidade da marca deve ser direcionada ao futuro, ou seja, deve revelar as associações aspiradas pela marca.
+
+Deve refletir as qualidades duradouras de uma marca. A identidade de marca é um meio básico de reconhecimento do consumidor e representa a distinção da marca dos seus concorrentes.
 
