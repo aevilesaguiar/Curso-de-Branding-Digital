@@ -414,9 +414,51 @@ A marca pode ser percebida como um produto, uma personalidade, um conjunto de va
 
 A identidade de marca é tudo o que uma organização quer que a marca seja considerada. Então, lembrando, a marca pode ser vinculada a uma empresa, um produto, serviço ou até mesmo uma pessoa. E é uma maneira de expressar externamente uma marca para o mundo. Resumindo, é o meio de identificar e distinguir uma organização da outra. Uma marca com uma identidade única, melhora não somente o reconhecimento de marca, mas também motiva a equipe de funcionários que se sentem orgulhosos em trabalhar numa organização em que a marca é reconhecida, que tem compradores ativos e um estilo próprio.
 
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/a8d64918-7952-47ea-bc4d-23aa49aa4f4b)
+
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/f0920171-efd9-4ee0-8957-b67204ea284a)
+
 Então, até na questão de melhorar os seus colaboradores, melhorar no sentido de qualificação dos seus colaboradores, ter uma marca forte também ajuda nesse sentido. A identidade da marca leva então a lealdade, preferência, credibilidade, bons preços e bons retornos financeiros.
 
 Ajuda a organização a expressar aos clientes e ao mercado alvo o tipo de organização que ela é. A identidade da marca deve ser direcionada ao futuro, ou seja, deve revelar as associações aspiradas pela marca.
 
 Deve refletir as qualidades duradouras de uma marca. A identidade de marca é um meio básico de reconhecimento do consumidor e representa a distinção da marca dos seus concorrentes.
 
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/058cad8c-0bb0-4ba9-b116-9a74f469466e)
+
+
+**Imagem da marca**
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/cf87e0a5-14fa-4c30-a6a5-6333fd3362ff)
+
+![image](https://github.com/aevilesaguiar/Curso-de-Branding-Digital/assets/52088444/5f89564a-b24c-4b8b-abb9-d199174dba7a)
+
+A imagem da marca e a visão atual dos clientes sobre uma marca atual, pois a personalidade pode ser trabalhada pela marca para justamente conquistar a percepção desejada.bPara ser definida como um conjunto exclusivo de associações na mente do consumidor. A imagem da marca significa o que a marca representa atualmente. O conjunto de crenças sobre uma marca específica quer dizer, ela não é nada além da percepção dos consumidores sobre um determinado produto, por exemplo. É a maneira pela qual uma marca específica é posicionada no mercado.
+
+A imagem da marca transmite valor emocional e não apenas imagem mental. A imagem de marca não é nada além do que o caráter de uma organização e o acúmulo de pontos de contato e observações por pessoas externas a uma organização.Então, você se lembra que nós já vimos aqui no curso com relação aos pontos de contato, e é por meio desses pontos de contato que as pessoas têm com tenha contato com a marca e assim elas conseguem determinar uma imagem.
+Elas têm esse conjunto de percepções e associações na mente. A imagem da marca, então, deve ser positiva, única e instantânea. Quer dizer, a imagem da marca é reforçada por meio de várias formas de comunicação, como por exemplo, nas redes sociais.
+
+A imagem da marca deve ser positiva. Por quê? Porque nós queremos que a marca seja vista como algo positivo. A gente não quer que a marca seja vista de forma negativa, única.
+
+Por quê? Porque a gente quer que ela seja destacada com relação aos nossos concorrentes.
+
+Na imagem, as pessoas ali têm que ver a nossa marca e automaticamente identificar. Algo de diferente e instantaneamente. Exatamente por isso tem que ser automático, tem que ser rápido. Tem que ser uma comunicação ali direta, a imagem da marca e a impressão geral na mente do consumidor.
+
+E ela é formada por todas as fontes, por todos os pontos de contato. Os consumidores desenvolvem várias associações com uma marca e aí é com base nessas associações que eles formam, lá na mente deles, a imagem da marca. A ideia por trás da imagem da marca é que o consumidor não está comprando apenas um produto ou um serviço. Na verdade, eles estão comprando essa imagem que é associada a esse produto ou serviço.
+
+E como o público diferencia a marca dos seus concorrentes. A imagem da marca, então, consiste em várias associações na mente dos consumidores, e essas associações são atributos e benefícios que as pessoas identificam e relacionam com aquela marca. Atributos são as conexões funcionais e mentais com a marca que os clientes têm e os benefícios são a justificativa para a decisão de compra. E eles podem ser funcionais ou emocionais. Agora vamos ver comparando identidade e imagem.
+
+
+Quando a gente fala de identidade da marca, ela vem da empresa. Por outro lado, a imagem da marca quem tem, quem cria, quem define é o consumidor. Então, a imagem da marca ela é de posse do consumidor e não da empresa.
+
+Quando a gente fala a identidade da marca, a pergunta crucial é quem você realmente é? No caso da imagem, a pergunta é Como que o mercado percebe você? Quando a gente fala de imagem da marca, a visão é dos outros.São os outros que têm aquela visão.
+
+No caso da identidade, são os desejos que a marca tem, a identidade que a marca deseja ter. Então, ela trabalha para construir isso. Ela trabalha olhando para a frente, trabalha pensando sempre o máximo que ela pode agregar ali na identidade.
+
+Já a imagem olhando para trás e com relação a algo que a marca já fez, já foi, já passou. A imagem, portanto, é passiva. A empresa não pode atuar diretamente na imagem, mas ela atua na identidade.
+
+A identidade, pergunta se onde que você quer estar? Já a imagem pergunta onde você chegou? A imagem, portanto, é a percepção que os clientes, os consumidores têm daquela marca e a identidade e a promessa que a marca faz. A promessa, então, que a marca tem de quem ela realmente é?
+
+Concentre se, então, em moldar a sua identidade de marca, porque a imagem será a consequência de todo esse trabalho.
