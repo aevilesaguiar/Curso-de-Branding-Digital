@@ -277,3 +277,6 @@ Material Extra: Vídeos
 
 Veja como as marcas comunicam sua personalidade por meio de campanhas e comerciais para defender sua visão de mundo.
 
+ - https://www.youtube.com/watch?v=v26WWHUwj38
+ - https://www.youtube.com/watch?v=8pcdnqLBRmQ
+ - https://www.youtube.com/watch?v=ABups4euCW4
